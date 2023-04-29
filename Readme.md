@@ -1,1 +1,1 @@
-AutoFarm AutoQuest AutoHatch Speed Jump Flight NoClip And More!!!
+Hello, I have stopped playing the game because it has become pay-to-win and it's difficult to get a huge pet without cheating or getting scammed. There are features such as comet farm, auto farm, dupe, and auto quest, which used to be exclusive but now are becoming more widespread because everyone is weak. I have decided to spread the word about this.
