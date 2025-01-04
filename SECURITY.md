@@ -1,0 +1,1 @@
+yunus bacini sikim oç
